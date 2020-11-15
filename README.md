@@ -22,3 +22,8 @@ Sa chaîne Twitch : https://www.twitch.tv/charlelee
 # [CharleLee (REDhunter)](https://drive.google.com/file/d/1dVdyfPLmlKZXUVYg_Uo8OZVVDoEOyN9W/view?usp=sharing)
 ![](https://imgur.com/1U6Wzsn.png)
 
+
+
+# [CharleLee (Old Style)](https://drive.google.com/file/d/1NOICD6fmRr2-bRkEnvyjm4t9vH7odyDe/view?usp=sharing)
+![](https://imgur.com/yq2Zp9Q.png)
+
