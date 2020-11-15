@@ -2,6 +2,7 @@
 Les skins utilisés par CharleLee
 
 Sa chaîne Twitch : https://www.twitch.tv/charlelee
+Son profil : https://osu.ppy.sh/users/10434787
 
 
 # [BProd EZ edit](http://www.mediafire.com/file/87fn8t90y6dclpx/BProd+EZ+edit.osk/file)
