@@ -16,3 +16,9 @@ Sa chaîne Twitch : https://www.twitch.tv/charlelee
 
 # [CharleLee (Shige)](https://drive.google.com/file/d/1GPPNoviGY-vDmpami1EcbH0H8gjjlICJ/view?usp=sharing)
 ![](https://imgur.com/VXzwK1E.png)
+
+
+
+# [CharleLee (REDhunter)](https://drive.google.com/file/d/1dVdyfPLmlKZXUVYg_Uo8OZVVDoEOyN9W/view?usp=sharing)
+![](https://imgur.com/1U6Wzsn.png)
+
