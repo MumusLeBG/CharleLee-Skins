@@ -39,3 +39,15 @@ Son profil : https://osu.ppy.sh/users/10434787
 # [CharleLee (NerO)](https://drive.google.com/file/d/18uA_EQBl0kKxnH3ngCM0nrto7s0lJPFq/view?usp=sharing)
 ![](https://imgur.com/Vqh8d5h.png)
 
+
+
+# [CharleLee (Karthy)](https://drive.google.com/file/d/1MIzQH7oPlQFMCOpcuRngkA8RV_ddoTvy/view?usp=sharing)
+![](https://imgur.com/D5cb35R.png)
+
+
+
+# [CharleLee (FlyingTuna)](https://drive.google.com/file/d/1z_u_tjuIjFwOvKl3BqjUMRcaxDVBuT-8/view?usp=sharing)
+![](https://imgur.com/5YFuGK4.png)
+
+
+
