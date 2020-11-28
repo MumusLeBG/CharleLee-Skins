@@ -81,4 +81,14 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
+# [CharleLee (EZ MK FlyingTuna)](https://drive.google.com/file/d/1_4jNv3fSOmWaA-FRaA-O5W6e2XzpwSVF/view?usp=sharing)
+![](https://imgur.com/c2AVJOA.png)
+
+
+
+# [CharleLee (EZ Idke)](https://drive.google.com/file/d/1sI1qrAXVbJbUXvsyxksPQU3ck7_YRyT3/view?usp=sharing)
+![](https://imgur.com/8EgvbDU.png)
+
+
+
 
