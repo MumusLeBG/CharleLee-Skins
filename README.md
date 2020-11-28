@@ -11,13 +11,13 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
+# [CharleLee (EZ NerO) (skin que j'utilise le plus !)](https://drive.google.com/file/d/1xzSQpA3f9ixAlqJwgND9oTUXTVDwPz-o/view?usp=sharing)
+![](https://imgur.com/oBFivMb.png)
+
+
+
 # [CharleLee (Delisha) (skin que j'utilise en HD AR8)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
 ![](https://imgur.com/CQ40mBz.png)
-
-
-
-# [CharleLee (EZ NerO)](https://drive.google.com/file/d/1xzSQpA3f9ixAlqJwgND9oTUXTVDwPz-o/view?usp=sharing)
-![](https://imgur.com/oBFivMb.png)
 
 
 
@@ -61,11 +61,6 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
-# [CharleLee (Delisha) (skin que j'utilise en HD AR8)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
-![](https://imgur.com/CQ40mBz.png)
-
-
-
 # [CharleLee (BPM)](https://drive.google.com/file/d/17JwYX2uHIy8iIvwGSA8DlkCZPppgdrWu/view?usp=sharing)
 ![](https://imgur.com/VtqsdAi.png)
 
@@ -98,11 +93,6 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 # [CharleLee (EZ Okinamo)](https://drive.google.com/file/d/1PYJ9P-ZEtmS7HVgZAICZY5sxLfE_8vSp/view?usp=sharing)
 ![](https://imgur.com/0E9DBiP.png)
-
-
-
-# [CharleLee (EZ NerO)](https://drive.google.com/file/d/1xzSQpA3f9ixAlqJwgND9oTUXTVDwPz-o/view?usp=sharing)
-![](https://imgur.com/oBFivMb.png)
 
 
 
