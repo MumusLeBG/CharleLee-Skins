@@ -11,6 +11,16 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
+# [CharleLee (Delisha) (skin que j'utilise en HD AR8)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
+![](https://imgur.com/CQ40mBz.png)
+
+
+
+# [CharleLee (EZ NerO)](https://drive.google.com/file/d/1xzSQpA3f9ixAlqJwgND9oTUXTVDwPz-o/view?usp=sharing)
+![](https://imgur.com/oBFivMb.png)
+
+
+
 # [CharleLee](https://drive.google.com/file/d/1Fi5GBSinWoMA7ziRtw0StBUKkkivHPMx/view?usp=sharing)
 ![](https://imgur.com/W4AGtv5.png)
 
@@ -51,7 +61,7 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
-# [CharleLee (Delisha)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
+# [CharleLee (Delisha) (skin que j'utilise en HD AR8)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
 ![](https://imgur.com/CQ40mBz.png)
 
 
