@@ -51,6 +51,11 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
+# [CharleLee (Delisha)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
+![](https://imgur.com/CQ40mBz.png)
+
+
+
 # [CharleLee (EZ)](https://drive.google.com/file/d/1e_7NFU5dA7-lKHtI-F1zpT424JohCJCB/view?usp=sharing)
 ![](https://imgur.com/qNW6Y1s.png)
 
