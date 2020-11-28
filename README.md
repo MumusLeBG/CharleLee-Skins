@@ -29,3 +29,8 @@ Son profil : https://osu.ppy.sh/users/10434787
 # [CharleLee (Old Style)](https://drive.google.com/file/d/1NOICD6fmRr2-bRkEnvyjm4t9vH7odyDe/view?usp=sharing)
 ![](https://imgur.com/yq2Zp9Q.png)
 
+
+
+# [CharleLee (NM)](https://drive.google.com/file/d/1tIzVihKzySK5mTmtOzrGQhXvHhXpeY0w/view?usp=sharing)
+![](https://imgur.com/oOwKsr0.png)
+
