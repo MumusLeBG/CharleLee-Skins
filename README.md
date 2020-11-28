@@ -101,4 +101,9 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
+# [CharleLee (EZ -GN)](https://drive.google.com/file/d/1_C0WvPPKSrT6E9C-5_y2cqOcZ8B2BQt4/view?usp=sharing)
+![](https://imgur.com/w3jSoS5.png)
+
+
+
 
