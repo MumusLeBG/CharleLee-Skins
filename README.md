@@ -71,4 +71,9 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
+# [CharleLee (EZ Okinamo)](https://drive.google.com/file/d/1PYJ9P-ZEtmS7HVgZAICZY5sxLfE_8vSp/view?usp=sharing)
+![](https://imgur.com/0E9DBiP.png)
+
+
+
 
