@@ -96,4 +96,9 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
+# [CharleLee (EZ BPM)](https://drive.google.com/file/d/1UGbLJN3FylFOtzMyxcbeMM2XOJvttYGQ/view?usp=sharing)
+![](https://imgur.com/xqSeSsZ.png)
+
+
+
 
