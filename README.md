@@ -61,6 +61,11 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
+# [CharleLee (Azr8)](https://drive.google.com/file/d/1EqMHkiayvWmayd7HAbEZ9fXf9Yhtg5I9/view?usp=sharing)
+![](https://imgur.com/G0vvikp.png)
+
+
+
 # [CharleLee (EZ)](https://drive.google.com/file/d/1e_7NFU5dA7-lKHtI-F1zpT424JohCJCB/view?usp=sharing)
 ![](https://imgur.com/qNW6Y1s.png)
 
