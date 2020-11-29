@@ -11,7 +11,7 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
-# [CharleLee (EZ NerO) (skin que j'utilise le plus !)](https://drive.google.com/file/d/1xzSQpA3f9ixAlqJwgND9oTUXTVDwPz-o/view?usp=sharing)
+# [CharleLee (EZ NerO) (skin que j'utilise le + !)](https://drive.google.com/file/d/1xzSQpA3f9ixAlqJwgND9oTUXTVDwPz-o/view?usp=sharing)
 ![](https://imgur.com/oBFivMb.png)
 
 
