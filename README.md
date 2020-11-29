@@ -6,7 +6,7 @@ Sa chaîne Twitch : https://www.twitch.tv/charlelee
 Son profil : https://osu.ppy.sh/users/10434787
 
 
-# [BProd EZ edit(main skin EZ)](http://www.mediafire.com/file/87fn8t90y6dclpx/BProd+EZ+edit.osk/file)
+# [BProd EZ edit (main skin EZ)](http://www.mediafire.com/file/87fn8t90y6dclpx/BProd+EZ+edit.osk/file)
 ![](https://imgur.com/xVZGMZw.png)
 
 
