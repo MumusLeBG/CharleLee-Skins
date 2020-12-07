@@ -20,6 +20,9 @@ Son profil : https://osu.ppy.sh/users/10434787
 ![](https://imgur.com/CQ40mBz.png)
 
 
+# [Bprod DT edit (skin que j'utilise en DT)](https://drive.google.com/file/d/1qLT1_Sc0uQcDgz7LlyBi_qeKEco_DJdv/view?usp=sharing)
+![](https://imgur.com/rurj36E)
+
 
 # [CharleLee (Azer)](https://drive.google.com/file/d/1Fi5GBSinWoMA7ziRtw0StBUKkkivHPMx/view?usp=sharing)
 ![](https://imgur.com/W4AGtv5.png)
