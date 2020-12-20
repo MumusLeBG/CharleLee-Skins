@@ -11,8 +11,12 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
-# [CharleLee (EZ NerO) (skin que j'utilise le + !)](https://drive.google.com/file/d/1xzSQpA3f9ixAlqJwgND9oTUXTVDwPz-o/view?usp=sharing)
+# [CharleLee (EZ NerO) White cursor (skin que j'utilise le + !)](https://drive.google.com/file/d/1xzSQpA3f9ixAlqJwgND9oTUXTVDwPz-o/view?usp=sharing)
 ![](https://imgur.com/oBFivMb.png)
+
+# [CharleLee (EZ NerO) Yellow cursor](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
+
+# [CharleLee (EZ NerO) Green cursor](https://drive.google.com/file/d/1QUod2bUU4voblUY-hnK155p8FESDvhZX/view?usp=sharing)
 
 
 
