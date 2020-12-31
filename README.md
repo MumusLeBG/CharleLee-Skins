@@ -11,11 +11,10 @@ Son profil : https://osu.ppy.sh/users/10434787
 ![](https://imgur.com/oBFivMb.png)
 
 # [CharleLee (EZ NerO) Yellow cursor](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
-
+![](https://i.imgur.com/EoSG1Sw.jpg)
 
 # [CharleLee (EZ NerO) Green cursor](https://drive.google.com/file/d/1QUod2bUU4voblUY-hnK155p8FESDvhZX/view?usp=sharing)
 ![](https://i.imgur.com/yQpukV5.jpg)
-
 
 
 # [CharleLee (Delisha) (skin que j'utilise en HD AR8)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
@@ -23,7 +22,7 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 # [Bprod DT edit (skin que j'utilise en DT)](https://drive.google.com/file/d/1qLT1_Sc0uQcDgz7LlyBi_qeKEco_DJdv/view?usp=sharing)
-![](https://imgur.com/rurj36E)
+![](https://i.imgur.com/rurj36E.jpg)
 
 
 # [CharleLee (Azer)](https://drive.google.com/file/d/1Fi5GBSinWoMA7ziRtw0StBUKkkivHPMx/view?usp=sharing)
