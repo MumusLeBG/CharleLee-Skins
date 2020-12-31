@@ -6,10 +6,6 @@ Sa chaîne Twitch : https://www.twitch.tv/charlelee
 Son profil : https://osu.ppy.sh/users/10434787
 
 
-# [BProd EZ edit (main skin EZ)](http://www.mediafire.com/file/87fn8t90y6dclpx/BProd+EZ+edit.osk/file)
-![](https://imgur.com/xVZGMZw.png)
-
-
 
 # [CharleLee (EZ NerO) White cursor (skin que j'utilise le + !)](https://drive.google.com/file/d/1xzSQpA3f9ixAlqJwgND9oTUXTVDwPz-o/view?usp=sharing)
 ![](https://imgur.com/oBFivMb.png)
@@ -128,6 +124,7 @@ Son profil : https://osu.ppy.sh/users/10434787
 # [CharleLee (EZ -GN)](https://drive.google.com/file/d/1_C0WvPPKSrT6E9C-5_y2cqOcZ8B2BQt4/view?usp=sharing)
 ![](https://imgur.com/w3jSoS5.png)
 
-
+# [BProd EZ edit (main skin EZ)](http://www.mediafire.com/file/87fn8t90y6dclpx/BProd+EZ+edit.osk/file)
+![](https://imgur.com/xVZGMZw.png)
 
 
