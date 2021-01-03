@@ -7,10 +7,10 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 
 
-# [CharleLee (EZ NerO) White cursor (skin que j'utilise le + !)](https://drive.google.com/file/d/1S-P0Y03OaQ7-n5cSX4__DPzV2IFtfRA1/view?usp=sharing)
+# [CharleLee (EZ NerO) White cursor](https://drive.google.com/file/d/1S-P0Y03OaQ7-n5cSX4__DPzV2IFtfRA1/view?usp=sharing)
 ![](https://imgur.com/oBFivMb.png)
 
-# [CharleLee (EZ NerO) Yellow cursor](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
+# [CharleLee (EZ NerO) Yellow cursor (skin que j'utilise le + !)](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
 ![](https://i.imgur.com/EoSG1Sw.jpg)
 
 # [CharleLee (EZ NerO) Green cursor](https://drive.google.com/file/d/1QUod2bUU4voblUY-hnK155p8FESDvhZX/view?usp=sharing)
@@ -123,7 +123,7 @@ Son profil : https://osu.ppy.sh/users/10434787
 # [CharleLee (EZ -GN)](https://drive.google.com/file/d/1_C0WvPPKSrT6E9C-5_y2cqOcZ8B2BQt4/view?usp=sharing)
 ![](https://imgur.com/w3jSoS5.png)
 
-# [BProd EZ edit (main skin EZ)](http://www.mediafire.com/file/87fn8t90y6dclpx/BProd+EZ+edit.osk/file)
+# [BProd EZ edit (old main skin EZ)](http://www.mediafire.com/file/87fn8t90y6dclpx/BProd+EZ+edit.osk/file)
 ![](https://imgur.com/xVZGMZw.png)
 
 
