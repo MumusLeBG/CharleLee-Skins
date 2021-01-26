@@ -6,7 +6,7 @@ Sa chaîne Twitch : https://www.twitch.tv/charlelee
 Son profil : https://osu.ppy.sh/users/10434787
 
 # [CharleLee test edit](https://drive.google.com/file/d/1RUZZZd7aYqA4cKANo5dZNE4xJpfQeOON/view?usp=sharing)
-![](https://imgur.com/zxGM91y)
+![](<blockquote class="imgur-embed-pub" lang="en" data-id="zxGM91y"><a href="https://imgur.com/zxGM91y">View post on imgur.com</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>)
 # [CharleLee (EZ NerO) White cursor](https://drive.google.com/file/d/1S-P0Y03OaQ7-n5cSX4__DPzV2IFtfRA1/view?usp=sharing)
 ![](https://imgur.com/oBFivMb.png)
 
