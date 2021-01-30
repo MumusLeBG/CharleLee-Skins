@@ -5,10 +5,10 @@ Sa chaîne Twitch : https://www.twitch.tv/charlelee
 
 Son profil : https://osu.ppy.sh/users/10434787
 
-# [CharleLee test edit](https://drive.google.com/file/d/1RUZZZd7aYqA4cKANo5dZNE4xJpfQeOON/view?usp=sharing)
+# [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
 ![](https://imgur.com/zxGM91y.png)
 # [CharleLee (EZ NerO) White cursor](https://drive.google.com/file/d/1S-P0Y03OaQ7-n5cSX4__DPzV2IFtfRA1/view?usp=sharing)
-![](https://imgur.com/oBFivMb.png)
+![](https://i.imgur.com/N7slVXD.jpg)
 
 # [CharleLee (EZ NerO) Yellow cursor (skin que j'utilise le + !)](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
 ![](https://i.imgur.com/EoSG1Sw.jpg)
