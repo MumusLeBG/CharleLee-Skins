@@ -7,10 +7,8 @@ Son profil : https://osu.ppy.sh/users/10434787
 
 # [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
 ![](https://i.imgur.com/N7slVXD.jpg)
-# [CharleLee (EZ NerO) White cursor](https://drive.google.com/file/d/1S-P0Y03OaQ7-n5cSX4__DPzV2IFtfRA1/view?usp=sharing)
-![](https://i.imgur.com/N7slVXD.jpg)
 
-# [CharleLee (EZ NerO) Yellow cursor (skin que j'utilise le + !)](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
+# [CharleLee (EZ NerO) Yellow cursor](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
 ![](https://i.imgur.com/EoSG1Sw.jpg)
 
 # [CharleLee (EZ NerO) Green cursor](https://drive.google.com/file/d/1QUod2bUU4voblUY-hnK155p8FESDvhZX/view?usp=sharing)
