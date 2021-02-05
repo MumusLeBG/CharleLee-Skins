@@ -8,18 +8,18 @@ Son profil : https://osu.ppy.sh/users/10434787
 # [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
 ![](https://i.imgur.com/N7slVXD.jpg)
 
-# [CharleLee (EZ NerO) Yellow cursor](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
-![](https://i.imgur.com/EoSG1Sw.jpg)
-
 # [CharleLee (EZ NerO) White cursor](https://drive.google.com/file/d/1NELWkVtQOS_R0tY4g9y8CJTbv4eykTPH/view?usp=sharing)
 ![](https://imgur.com/hzV1PWu.jpg)
 
+# [CharleLee (EZ NerO) Yellow cursor](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
+![](https://i.imgur.com/EoSG1Sw.jpg)
 
-# [CharleLee (Delisha) (skin que j'utilise en HD AR8)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
+
+# [CharleLee (Delisha)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
 ![](https://imgur.com/CQ40mBz.png)
 
 
-# [Bprod DT edit (skin que j'utilise en DT)](https://drive.google.com/file/d/1qLT1_Sc0uQcDgz7LlyBi_qeKEco_DJdv/view?usp=sharing)
+# [Bprod DT edit](https://drive.google.com/file/d/1qLT1_Sc0uQcDgz7LlyBi_qeKEco_DJdv/view?usp=sharing)
 ![](https://i.imgur.com/rurj36E.jpg)
 
 
