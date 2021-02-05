@@ -11,8 +11,8 @@ Son profil : https://osu.ppy.sh/users/10434787
 # [CharleLee (EZ NerO) Yellow cursor](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
 ![](https://i.imgur.com/EoSG1Sw.jpg)
 
-# [CharleLee (EZ NerO) Green cursor](https://drive.google.com/file/d/1QUod2bUU4voblUY-hnK155p8FESDvhZX/view?usp=sharing)
-![](https://imgur.com/a/sYXjhqZ.png)
+# [CharleLee (EZ NerO) White cursor](https://drive.google.com/file/d/1NELWkVtQOS_R0tY4g9y8CJTbv4eykTPH/view?usp=sharing)
+![](https://imgur.com/hzV1PWu.jpg)
 
 
 # [CharleLee (Delisha) (skin que j'utilise en HD AR8)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
