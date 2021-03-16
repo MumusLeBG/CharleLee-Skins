@@ -8,6 +8,9 @@ Son profil : https://osu.ppy.sh/users/10434787
 # [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
 ![](https://i.imgur.com/N7slVXD.jpg)
 
+# [CharleLee (EZ NerO) Red slider](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
+![](https://i.imgur.com/owhZfrD.jpg)
+
 # [CharleLee (EZ NerO) White cursor](https://drive.google.com/file/d/1NELWkVtQOS_R0tY4g9y8CJTbv4eykTPH/view?usp=sharing)
 ![](https://imgur.com/hzV1PWu.jpg)
 
