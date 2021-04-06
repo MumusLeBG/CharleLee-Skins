@@ -5,17 +5,14 @@ Sa chaîne Twitch : https://www.twitch.tv/charlelee
 
 Son profil : https://osu.ppy.sh/users/10434787
 
-# [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
-![](https://i.imgur.com/N7slVXD.jpg)
-
-# [CharleLee (EZ NerO) Red slider](https://drive.google.com/file/d/1NfA19KH0BlPiFrR8Tjjejwd9HbAzPD2x/view?usp=sharing)
-![](https://i.imgur.com/1N7bZQ9.jpg)
+# [CharleLee (EZ NerO) Yellow cursor](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
+![](https://i.imgur.com/EoSG1Sw.jpg)
 
 # [CharleLee (EZ NerO) White cursor](https://drive.google.com/file/d/1NELWkVtQOS_R0tY4g9y8CJTbv4eykTPH/view?usp=sharing)
 ![](https://imgur.com/hzV1PWu.jpg)
 
-# [CharleLee (EZ NerO) Yellow cursor](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
-![](https://i.imgur.com/EoSG1Sw.jpg)
+# [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
+![](https://i.imgur.com/N7slVXD.jpg)
 
 
 # [CharleLee (Delisha)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
