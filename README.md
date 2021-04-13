@@ -1,15 +1,13 @@
 # CharleLee-Skins
 Les skins utilisés par CharleLee
 
-Sa chaîne Twitch : https://www.twitch.tv/charlelee
+Chaîne Twitch : https://www.twitch.tv/charlelee
 
-Son profil : https://osu.ppy.sh/users/10434787
+Profil : https://osu.ppy.sh/users/10434787
 
-# [CharleLee (EZ NerO) Yellow cursor](https://drive.google.com/file/d/1DrrzPtUIBF-hdZuRrsYsUMAXKi0N_kKg/view?usp=sharing)
-![](https://i.imgur.com/EoSG1Sw.jpg)
+# [CharleLee 2.0](https://drive.google.com/file/d/19mUs_HgelX5SeGYnDd9zQHKrZFR99JUl/view?usp=sharing)
+![](https://i.imgur.com/Vz9Jjw5.jpg)
 
-# [CharleLee (EZ NerO) White cursor](https://drive.google.com/file/d/1NELWkVtQOS_R0tY4g9y8CJTbv4eykTPH/view?usp=sharing)
-![](https://imgur.com/hzV1PWu.jpg)
 
 # [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
 ![](https://i.imgur.com/N7slVXD.jpg)
