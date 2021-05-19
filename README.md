@@ -1,7 +1,7 @@
 # CharleLee-Skins
 Les skins utilisés par CharleLee
 
-Chaîne Twitch : https://www.twitch.tv/charlelee
+Twitch channel : https://www.twitch.tv/charlelee
 
 Profil : https://osu.ppy.sh/users/10434787 https://drive.google.com/file/d/1gpSC9Ga9t-65OhBTkuu1gyfgwC3qqBm-/view?usp=sharing
 
@@ -10,12 +10,14 @@ Profil : https://osu.ppy.sh/users/10434787 https://drive.google.com/file/d/1gpSC
 # [CharleLee 2.0](https://drive.google.com/file/d/19mUs_HgelX5SeGYnDd9zQHKrZFR99JUl/view?usp=sharing)
 ![](https://i.imgur.com/L2r0zy5.jpg)
 
-
 # [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
 ![](https://i.imgur.com/N7slVXD.jpg)
 
 # [CharleLee Siae method](https://drive.google.com/file/d/1wyf2VDasBJjXnonIqS_cPBLQKMWTyZB8/view?usp=sharing)
 ![](https://i.imgur.com/Y5nvpNM.jpg)
+
+# [CharleLee Siae method (colored)](https://drive.google.com/file/d/13SFQRdp6i1ZPyBSyleWIZIB3FmrxUMnD/view?usp=sharing)
+![](https://i.imgur.com/R2OAH8S.jpg)
 
 # [CharleLee (Delisha)](https://drive.google.com/file/d/12Ubn5gAlmapvuulcFYis_8QxRog8FQxV/view?usp=sharing)
 ![](https://imgur.com/CQ40mBz.png)
