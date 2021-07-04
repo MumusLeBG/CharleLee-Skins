@@ -7,7 +7,7 @@ Profil : https://osu.ppy.sh/users/10434787 https://drive.google.com/file/d/1gpSC
 
 <p> <strong><a href=https://osu.ppy.sh/users/10434787 https://drive.google.com/file/d/1OrfzF2o9o35Ai9UGspHWA3Ny1-lLheb9/view?usp=sharing> cursor I use</a></strong></p>
 
-# [CharleLee 2.0](https://drive.google.com/file/d/19mUs_HgelX5SeGYnDd9zQHKrZFR99JUl/view?usp=sharing)
+# [CharleLee 2.0](https://drive.google.com/file/d/19qL6Xh5m3HFB9yuL_7BStVA-u8DPJ21F/view?usp=sharing)
 ![](https://i.imgur.com/aibIemT.jpg)
 
 # [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
