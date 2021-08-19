@@ -10,6 +10,9 @@ Profil : https://osu.ppy.sh/users/10434787 https://drive.google.com/file/d/1gpSC
 # [CharleLee 2.0](https://drive.google.com/file/d/1xRCWnnqhB6cgC-iZ99C2AmrmH89KJXTB/view?usp=sharing)
 ![](https://i.imgur.com/BEk8n0O.jpg)
 
+# [CharleLee 1.0](https://drive.google.com/file/d/1JMvggdLSoFy0OE3mzkTqJmWddFiYD1QX/view?usp=sharing)
+![](https://i.imgur.com/l9XNeHk.jpg)
+
 # [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
 ![](https://i.imgur.com/N7slVXD.jpg)
 
