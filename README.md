@@ -5,7 +5,6 @@ Twitch channel : https://www.twitch.tv/charlelee
 
 Profil : https://osu.ppy.sh/users/10434787 
 
-<p> <strong><a href=https://osu.ppy.sh/users/10434787 https://drive.google.com/file/d/1OrfzF2o9o35Ai9UGspHWA3Ny1-lLheb9/view?usp=sharing> cursor I use</a></strong></p>
 
 # [CharleLee 2.0](https://drive.google.com/file/d/1xRCWnnqhB6cgC-iZ99C2AmrmH89KJXTB/view?usp=sharing)
 ![](https://i.imgur.com/BEk8n0O.jpg)
