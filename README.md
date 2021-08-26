@@ -3,7 +3,7 @@ Les skins utilisés par CharleLee
 
 Twitch channel : https://www.twitch.tv/charlelee
 
-Profil : https://osu.ppy.sh/users/10434787 https://drive.google.com/file/d/1gpSC9Ga9t-65OhBTkuu1gyfgwC3qqBm-/view?usp=sharing
+Profil : https://osu.ppy.sh/users/10434787 
 
 <p> <strong><a href=https://osu.ppy.sh/users/10434787 https://drive.google.com/file/d/1OrfzF2o9o35Ai9UGspHWA3Ny1-lLheb9/view?usp=sharing> cursor I use</a></strong></p>
 
