@@ -15,6 +15,9 @@ Profil : https://osu.ppy.sh/users/10434787
 # [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
 ![](https://i.imgur.com/N7slVXD.jpg)
 
+# [CharleLee Default](https://drive.google.com/file/d/1UTTQE3Q04iaPYt-qWAlvVHUesRiB9lIQ/view?usp=sharing)
+![](https://i.imgur.com/N7slVXD.jpg)
+
 # [CharleLee Siae method](https://drive.google.com/file/d/1wyf2VDasBJjXnonIqS_cPBLQKMWTyZB8/view?usp=sharing)
 ![](https://i.imgur.com/Y5nvpNM.jpg)
 
