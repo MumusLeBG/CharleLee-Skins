@@ -6,8 +6,8 @@ Twitch channel : https://www.twitch.tv/charlelee
 Profil : https://osu.ppy.sh/users/10434787 
 
 
-# [CharleLee 2.0](https://drive.google.com/file/d/1xRCWnnqhB6cgC-iZ99C2AmrmH89KJXTB/view?usp=sharing)
-![](https://i.imgur.com/BEk8n0O.jpg)
+# [CharleLee 1.1](https://drive.google.com/file/d/1EvvARVP3O6ew2hYoLVqeRoE7D-9J6S2-/view?usp=sharing)
+![](https://i.imgur.com/v22gB8L.jpg)
 
 # [CharleLee 1.0](https://drive.google.com/file/d/1JMvggdLSoFy0OE3mzkTqJmWddFiYD1QX/view?usp=sharing)
 ![](https://i.imgur.com/l9XNeHk.jpg)
@@ -133,4 +133,6 @@ Profil : https://osu.ppy.sh/users/10434787
 # [BProd EZ edit (old main skin EZ)](http://www.mediafire.com/file/87fn8t90y6dclpx/BProd+EZ+edit.osk/file)
 ![](https://imgur.com/xVZGMZw.png)
 
+// [CharleLee 2.0](https://drive.google.com/file/d/1xRCWnnqhB6cgC-iZ99C2AmrmH89KJXTB/view?usp=sharing)
+![](https://i.imgur.com/BEk8n0O.jpg)
 
