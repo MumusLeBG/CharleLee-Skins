@@ -12,6 +12,9 @@ Profil : https://osu.ppy.sh/users/10434787
 # [CharleLee 1.0](https://drive.google.com/file/d/1JMvggdLSoFy0OE3mzkTqJmWddFiYD1QX/view?usp=sharing)
 ![](https://i.imgur.com/l9XNeHk.jpg)
 
+# [CharleLee Fieryrage mashup](https://drive.google.com/file/d/1LPe5Tbh_RTY0aXbdg0IMQTnC_S6fNNpj/view?usp=sharing)
+![](https://i.imgur.com/kWUs0c1.jpg)
+
 # [CharleLee Default](https://drive.google.com/file/d/17Y3R5xdvUzZawG-YU8d9oBWcZilt5Aws/view?usp=sharing)
 ![](https://i.imgur.com/N7slVXD.jpg)
 
