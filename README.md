@@ -7,7 +7,7 @@ Profil : https://osu.ppy.sh/users/10434787
 
 
 # [CharleLee 1.1](https://drive.google.com/file/d/1EvvARVP3O6ew2hYoLVqeRoE7D-9J6S2-/view?usp=sharing)
-![](https://i.imgur.com/v22gB8L.jpg)
+![](https://i.imgur.com/J9LjEJX.jpg)
 
 # [CharleLee 1.0](https://drive.google.com/file/d/1JMvggdLSoFy0OE3mzkTqJmWddFiYD1QX/view?usp=sharing)
 ![](https://i.imgur.com/l9XNeHk.jpg)
