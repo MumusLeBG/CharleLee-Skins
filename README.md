@@ -9,7 +9,7 @@ Profil : https://osu.ppy.sh/users/10434787
 # [CharleLee 1.1](https://drive.google.com/file/d/1EvvARVP3O6ew2hYoLVqeRoE7D-9J6S2-/view?usp=sharing)
 ![](https://i.imgur.com/hIeZTs9.jpg)
 
-# [CharleLee 1.1](https://drive.google.com/file/d/137Y1wlbxjC09MLJuLIvDN1Td80wkQNFL/view?usp=sharing)
+# [CharleLee Gray](https://drive.google.com/file/d/137Y1wlbxjC09MLJuLIvDN1Td80wkQNFL/view?usp=sharing)
 ![](https://i.imgur.com/dFkg4S1.jpg)
 
 # [CharleLee 1.0](https://drive.google.com/file/d/1JMvggdLSoFy0OE3mzkTqJmWddFiYD1QX/view?usp=sharing)
