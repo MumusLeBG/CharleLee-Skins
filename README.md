@@ -12,6 +12,9 @@ Profil : https://osu.ppy.sh/users/10434787
 # [Aristia Edit](https://drive.google.com/file/d/1L61MDYDHbxYIcebHtAKS-LAfzLNi9wyB/view?usp=sharing)
 ![](https://i.imgur.com/P1RUO25.jpg)
 
+# [Aristia Edit Colored version](https://drive.google.com/file/d/1mf9kibpHGwh-N95oAFTxZ8M3WCfJY_3F/view?usp=sharing)
+![](https://i.imgur.com/aE2Q79t.jpg)
+
 # [CharleLee 1.02](https://drive.google.com/file/d/12gONo2ejT4nbOc5WSVtX_woi_iCfJ8bf/view?usp=sharing)
 ![](https://i.imgur.com/b971LbQ.jpg)
 
