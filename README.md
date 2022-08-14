@@ -5,15 +5,11 @@ Twitch channel : https://www.twitch.tv/charlelee
 
 Profil : https://osu.ppy.sh/users/10434787 
 
+# [Aristia(Edit) Yellow cursor](https://drive.google.com/file/d/1xNiNeBgfZjEVRFz7P6BCKAMSr3GVsHdU/view?usp=sharing)
+![](https://i.imgur.com/3xZyTFQ.jpg)
 
 # [CharleLee 1.1](https://drive.google.com/file/d/1EvvARVP3O6ew2hYoLVqeRoE7D-9J6S2-/view?usp=sharing)
 ![](https://i.imgur.com/hIeZTs9.jpg)
-
-# [Aristia Edit](https://drive.google.com/file/d/1xNiNeBgfZjEVRFz7P6BCKAMSr3GVsHdU/view?usp=sharing)
-![](https://i.imgur.com/3xZyTFQ.jpg)
-
-# [Aristia Edit Colored version](https://drive.google.com/file/d/1mf9kibpHGwh-N95oAFTxZ8M3WCfJY_3F/view?usp=sharing)
-![](https://i.imgur.com/aE2Q79t.jpg)
 
 # [CharleLee 1.02](https://drive.google.com/file/d/12gONo2ejT4nbOc5WSVtX_woi_iCfJ8bf/view?usp=sharing)
 ![](https://i.imgur.com/b971LbQ.jpg)
