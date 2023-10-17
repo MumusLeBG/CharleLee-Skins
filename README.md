@@ -8,6 +8,9 @@ Profil : https://osu.ppy.sh/users/10434787
 # [CharleLee 1.5](https://drive.google.com/file/d/1GQi2MM-2Wbas7O2uE_PDIHGLFuiz3jsd/view?usp=sharing)
 ![](https://i.imgur.com/zXlVb4f.jpg)
 
+# [CharleLee 1.5 flashy](https://drive.google.com/file/d/1oXU3syaTqwxvnhI26S3waBGOrteoxBxp/view?usp=sharing)
+![](https://i.imgur.com/eFub7dM.jpg)
+
 # [CharleLee 1.1](https://drive.google.com/file/d/1EvvARVP3O6ew2hYoLVqeRoE7D-9J6S2-/view?usp=sharing)
 ![](https://i.imgur.com/hIeZTs9.jpg)
 
@@ -16,6 +19,9 @@ Profil : https://osu.ppy.sh/users/10434787
 
 # [CharleLee Ekoro mashup (WIP)](https://drive.google.com/file/d/1iSt6Lewa_XuxFNtYrloAseywPuGpvZ4M/view?usp=sharing)
 ![](https://i.imgur.com/54OaK6H.jpg)
+
+# [CharleLee Ekoro cool](https://drive.google.com/file/d/18O85ZkVGkZE6sVCD5JdgvBF03lc_GyJp/view?usp=sharing)
+![](https://i.imgur.com/cZJeYvK.jpg)
 
 # [Aristia(Edit) Yellow cursor](https://drive.google.com/file/d/1xNiNeBgfZjEVRFz7P6BCKAMSr3GVsHdU/view?usp=sharing)
 ![](https://i.imgur.com/3xZyTFQ.jpg)
