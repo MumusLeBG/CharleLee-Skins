@@ -23,6 +23,9 @@ Profil : https://osu.ppy.sh/users/10434787
 # [CharleLee Ekoro cool](https://drive.google.com/file/d/18O85ZkVGkZE6sVCD5JdgvBF03lc_GyJp/view?usp=sharing)
 ![](https://i.imgur.com/cZJeYvK.jpg)
 
+# [CharleLee blue)](https://drive.google.com/file/d/1sWGsaNn5h7wVMQwcB7yiNsju3NAbcjIh/view?usp=sharing)
+![](https://i.imgur.com/H0in1Pu.jpg)
+
 # [Aristia(Edit) Yellow cursor](https://drive.google.com/file/d/1xNiNeBgfZjEVRFz7P6BCKAMSr3GVsHdU/view?usp=sharing)
 ![](https://i.imgur.com/3xZyTFQ.jpg)
 
