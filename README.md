@@ -6,6 +6,9 @@ Twitch channel : https://www.twitch.tv/charlelee
 Profil : https://osu.ppy.sh/users/10434787 
 
 
+# [CharleLee low color](https://drive.google.com/file/d/17xbVOrtahBDPlVGJMGMCkb7NSDUZrE1j/view?usp=drive_link)
+![](https://i.imgur.com/C0UyDu3.jpeg)
+
 # [CharleLee 1.6](https://drive.google.com/file/d/1ZENIPXhVxxugK3PZbel5H_OxA4IffXOI/view?usp=sharing)
 ![](https://i.imgur.com/KkELvK9.jpg)
 
